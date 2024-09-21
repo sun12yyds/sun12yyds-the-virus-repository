@@ -1,1 +1,9 @@
-# sun12yyds-the-virus-repository
+这是sun12yyds的病毒库
+
+里面均为巨毒
+
+请勿在实体机中运行
+
+否则
+
+后果自负:)
